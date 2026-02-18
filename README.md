@@ -1,4 +1,13 @@
-![IMG_7569](https://github.com/user-attachments/assets/71f74bcc-389f-4e11-8dad-5e50c09a75d7)
+![IMG_7646](https://github.com/user-attachments/assets/ffe2f26c-a0c6-4131-915e-1c756b9dcd8e)
+
+   *I beg the stars to marry me,*
+
+*For they are my guide*
+
+*But daylight comes to claim their beauty,*
+
+*As fury paints the wasteland wide*
+
 
 
 <!--
