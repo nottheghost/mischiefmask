@@ -1,12 +1,25 @@
-![IMG_7646](https://github.com/user-attachments/assets/ffe2f26c-a0c6-4131-915e-1c756b9dcd8e)
+![IMG_7767](https://github.com/user-attachments/assets/bbf2c202-7080-42e9-90b8-4228b2a337df)
 
-   *I beg the stars to marry me,*
+![IMG_7769](https://github.com/user-attachments/assets/a7d2f920-aae8-45cd-9b9f-37829fe4f1f9)
+![IMG_7767](https://github.com/user-attachments/assets/5faa2e6a-b130-4be9-a573-33213f30f304)
 
-*For they are my guide*
 
-*But daylight comes to claim their beauty,*
+ *All the words I couldn't say to you*
 
-*As fury paints the wasteland wide*
+*A ready army in my throat*
+
+*I taste blood, I'm sick of swallowing stones*
+
+*So I'll wave the flag, tell the boys to go home*
+
+
+![IMG_7767](https://github.com/user-attachments/assets/0f810955-2ce8-49a4-b4fa-8467c88dc4d6)
+
+.
+![IMG_7770](https://github.com/user-attachments/assets/3028a788-e0c8-4cda-8c5f-81b24b2dc8cd)
+
+![IMG_7767](https://github.com/user-attachments/assets/c7a6d345-b2b6-428d-b22c-882f7e923a3a)
+
 
 
 
