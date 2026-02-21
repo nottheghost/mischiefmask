@@ -9,25 +9,20 @@
 ![IMG_7769](https://github.com/user-attachments/assets/a7d2f920-aae8-45cd-9b9f-37829fe4f1f9)
 ![IMG_7767](https://github.com/user-attachments/assets/5faa2e6a-b130-4be9-a573-33213f30f304)
 
+*I bite my tongue to keep the worst of the words in*
 
-*Oh, the path of least resistance*
+*So they don’t hurt nobody but me*
 
-*Foolish misinterpretation*
+*Swallow the poison I wanna spit*
 
-*Your heart is a ```nasty place```*
+*Bitter medicine,  
+I think it’s making me **sick***
 
-*I'm afraid to say ```"no"``` to you*
+*Don’t look up to me,  
+I’m not as tall as you think*
 
-.
-
-*Keep your ```lies``` and your denial*
-
-*I am fighting for survival*
-
-*My heart is a changing shape*
-
-*What if I said ```"no"``` to you?*
-
+*You see, I talk a big game
+But it’s **bullshit.***
 
 ![IMG_7767](https://github.com/user-attachments/assets/0f810955-2ce8-49a4-b4fa-8467c88dc4d6)
 
