@@ -10,13 +10,23 @@
 ![IMG_7767](https://github.com/user-attachments/assets/5faa2e6a-b130-4be9-a573-33213f30f304)
 
 
- *All the words I couldn't say to you*
+*Oh, the path of least resistance*
 
-*A ready army in my throat*
+*Foolish misinterpretation*
 
-*I taste blood, I'm sick of swallowing stones*
+*Your heart is a ```nasty place```*
 
-*So I'll wave the flag, tell the boys to go home*
+*I'm afraid to say ```"no"``` to you*
+
+.
+
+*Keep your ```lies``` and your denial*
+
+*I am fighting for survival*
+
+*My heart is a changing shape*
+
+*What if I said ```"no"``` to you?*
 
 
 ![IMG_7767](https://github.com/user-attachments/assets/0f810955-2ce8-49a4-b4fa-8467c88dc4d6)
